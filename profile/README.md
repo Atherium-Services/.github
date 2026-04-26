@@ -1,4 +1,4 @@
-# 🛠️ **Welcome to Atherium Group on GitHub**!
+# 🛠️ **Welcome to Atherium Global on GitHub**!
 
 
 ## 🚀 **About Us**
